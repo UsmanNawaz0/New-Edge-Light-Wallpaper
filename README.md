@@ -1,1 +1,0 @@
-# New-Edge-Light-Wallpaper
